@@ -1,3 +1,6 @@
 # rywenna.github.io
 
-only if an ai write it for me
+hi
+this is madison
+find me on ig & twi @ rywenna
+;)
